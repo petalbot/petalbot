@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![alt text](https://github.com/zhayun3233/zhayun3233/blob/ginger.png?raw=true)
+![Alt text](https://www.bsckids.com/wp-content/uploads/2016/04/Ep.17-GlovePhone-MASTER-MULTICHANNEL.00_03_19_16.Still007.png)
 
 - 🔭 I’m currently working on subliminals
 - 🌱 I’m currently learning a lot
