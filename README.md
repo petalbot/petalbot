@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![](https://github.com/zhayun3233/ginger.png)
+
 - 🔭 I’m currently working on subliminals
 - 🌱 I’m currently learning a lot
 - 👯 I’m looking to collaborate on anything
