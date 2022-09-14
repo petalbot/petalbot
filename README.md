@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![](https://github.com/zhayun3233/ginger.png)
+![alt text](https://github.com/zhayun3233/zhayun3233/blob/ginger.png?raw=true)
 
 - 🔭 I’m currently working on subliminals
 - 🌱 I’m currently learning a lot
