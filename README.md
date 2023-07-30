@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![Alt text](https://www.bsckids.com/wp-content/uploads/2016/04/Ep.17-GlovePhone-MASTER-MULTICHANNEL.00_03_19_16.Still007.png)
+![Alt text](https://avatars.githubusercontent.com/u/76890077?v=4)
 
 - 🔭 I’m currently working on projects
 - 🌱 I’m currently learning a lot
