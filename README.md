@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![Alt text](https://media.tenor.com/00JNBT9O3IYAAAAC/bunny-laptop.gif)
+![Alt text](https://www.deviantart.com/volatilefortune/art/little-plant-481679344)
 
 - 🔭 I’m currently working on projects
 - 🌱 I’m currently learning a lot
