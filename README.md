@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![Alt text](https://avatars.githubusercontent.com/u/76890077?v=4)
+![Alt text](https://media.tenor.com/00JNBT9O3IYAAAAC/bunny-laptop.gif)
 
 - 🔭 I’m currently working on projects
 - 🌱 I’m currently learning a lot
